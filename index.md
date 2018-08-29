@@ -2,4 +2,4 @@
 What I like about 193
 -It is shorter than 180
 -The labs are helpful in preparing me for the future
--My Instructors seem really nice
+-My Instructors seem very nice
